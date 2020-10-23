@@ -32,3 +32,6 @@ https://youtu.be/dOyuG1Aafnw
 Video Octubre 3
 
 https://youtu.be/Ky1qoI9tvqQ
+
+Video Octubre 17
+https://youtu.be/0AtKZ-2R8Xk
