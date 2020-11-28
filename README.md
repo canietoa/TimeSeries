@@ -42,3 +42,7 @@ Video Noviembre 14
 https://youtu.be/sdZqOJU9AkQ
 
 https://youtu.be/nvZtzq07xSE
+
+Noviembre 21
+
+https://youtu.be/EOHARjPQgV8
